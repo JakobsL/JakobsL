@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JakobsL
+- 👋 Hi, I’m @Biubird
 - 👀 I’m interested in crypto space
 - 🌱 I’m currently learning everything in crypto
 - 💞️ I’m looking to collaborate on anything I can
